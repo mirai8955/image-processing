@@ -1,0 +1,1 @@
+python‚Å‰æ‘œˆ—‚ðs‚¤ƒAƒ‹ƒSƒŠƒYƒ€‚Å‚· 
